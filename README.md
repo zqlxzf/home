@@ -1,1 +1,1 @@
-I use the code for my own entertainment. All the content comes from the Internet. If there is any infringement, please inform me. Please do not use it for commercial or other purposes
+代码仅供自己娱乐，帮助网络，如有侵权请告知，请勿用于商业或其他用途
